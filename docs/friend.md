@@ -1,0 +1,2 @@
+# 朋友服务器群
+> [点击加群](https://qm.qq.com/cgi-bin/qm/qr?_wv=1027&k=C9ngcWJD-iX7Imlb3-ceZ69-vX9su7Pt&authKey=YJ5Wucr%2BdWbQapTCNuWnBdBjLkKh7JtJgwWW9viy6%2FUiHfVPC5Ny08gDVnhOOKld&noverify=0&group_code=547348294)（java-基岩互通生存服）
